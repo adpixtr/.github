@@ -12,7 +12,7 @@
 - **Marketplace consulting** for Trendyol, Hepsiburada, Amazon, n11 and Etsy — [details](https://adpix.com.tr/pazaryeri-danismanligi/)
 - **E-export consulting** for brands selling abroad — [details](https://adpix.com.tr/e-ihracat-danismanligi/)
 
-AdPix is an official **ideasoft partner (Platin360)**. Our team of 10+ specialists has completed 176+ projects, including [Manovam](https://adpix.com.tr/projeler/manovam/), [Kerman Home](https://adpix.com.tr/projeler/kerman-home/) and [İstiklal Spor Store](https://adpix.com.tr/projeler/istiklal-spor-store/).
+AdPix is an official **ideasoft partner**. Our team of 10+ specialists has completed 176+ projects, including [Manovam](https://adpix.com.tr/projeler/manovam/), [Kerman Home](https://adpix.com.tr/projeler/kerman-home/) and [İstiklal Spor Store](https://adpix.com.tr/projeler/istiklal-spor-store/).
 
 ## Free resources
 
