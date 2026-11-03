@@ -6,7 +6,7 @@
 
 ## What we do
 
-- **E-commerce store setup & migration** on ideasoft, T-Soft, Ticimax, ikas, Platinmarket, Shopify and WooCommerce — [details](https://adpix.com.tr/e-ticaret-kurulum/)
+- **E-commerce store setup & migration** on ideasoft, Ticimax, ikas, T-Soft, Platinmarket, Shopify and WooCommerce — [details](https://adpix.com.tr/e-ticaret-kurulum/)
 - **E-commerce SEO & GEO (AI search visibility)** — [details](https://adpix.com.tr/e-ticaret-seo/)
 - **Google Ads & Meta Ads management** — [details](https://adpix.com.tr/dijital-reklam-ajansi/)
 - **Marketplace consulting** for Trendyol, Hepsiburada, Amazon, n11 and Etsy — [details](https://adpix.com.tr/pazaryeri-danismanligi/)
